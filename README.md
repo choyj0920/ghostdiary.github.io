@@ -1,1 +1,0 @@
-# ghostdiary.github.io
